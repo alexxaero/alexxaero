@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @alexxaero
+- 📫 Reach me on discord @alexxaero
